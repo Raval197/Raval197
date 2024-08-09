@@ -6,7 +6,7 @@
 
 ## 💡 Connect with me :
 
-<p align="left"> <a href="(https://twitter.com/BALKRISHNA765)" target="blank"><img src="https://img.shields.io/twitter/follow/BALKRISHNA765logo=twitter&style=for-the-badge" alt="BALKRISHNA765" /></a> 
+<p align="left"> <a href="(https://x.com/BALKRISHNA765?t=ibnvse4arNvwgrb7avrvgw&s=09)" target="blank"><img src="https://img.shields.io/twitter/follow/BALKRISHNA765logo=twitter&style=for-the-badge" alt="BALKRISHNA765" /></a> 
 <a href="https://www.linkedin.com/in/raval-balkrishna-73aa3b285"><img src="https://img.shields.io/badge/-Raval%20aBalkrishna-0077B5?style=for-the-badge&logo=Linkedin&logoColor=white"/></a>&nbsp 
 <a href="mailto:Ravalbalkrishna765@gmail.com">
     <img src="https://img.shields.io/badge/-Gmail-c14438?style=for-the-badge&logo=Gmail&logoColor=white&link=mailto:Ravalbalkrishna765@gmail.com" />
